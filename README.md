@@ -12,4 +12,4 @@ thalia.camily.rodrigues@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/FRU2yGmIf1YAAAAd/seriously.gif)
+![](https://tenor.com/pt-BR/view/seriously-gif-23861497)
